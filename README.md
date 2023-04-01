@@ -1,0 +1,2 @@
+# projektmarjana
+sztuczne to takie
